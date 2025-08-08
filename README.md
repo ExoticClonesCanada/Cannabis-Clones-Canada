@@ -47,7 +47,7 @@ We ship **weed clones across Canada** in secure, climate-controlled packaging to
 
 ## 📞 Contact Us
 
-Have questions about our **cannabis clones in Canada**?  
+Have [questions](https://allmylinks.com/exoticclones) about our **cannabis clones in Canada**?  
 Reach out via our website at [Exotic-Clones.ca](https://exotic-clones.ca) and our team will be happy to help.
 
 ---
